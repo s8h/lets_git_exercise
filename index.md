@@ -8,5 +8,3 @@ Valdorian, der betagte Herrscher des Konsortiums, ist auf der Suche nach ewigem 
 * smart
 * good-looking
 
-Diamant sagte:
-> Alles wird gut.
