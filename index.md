@@ -10,3 +10,6 @@ Valdorian, der betagte Herrscher des Konsortiums, ist auf der Suche nach ewigem 
 
 Diamant sagte:
 > Alles wird gut!
+
+![Gefahr](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ed/Hazard_X.svg/240px-Hazard_X.svg.png)
+
